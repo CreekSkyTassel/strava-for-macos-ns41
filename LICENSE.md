@@ -1,4 +1,4 @@
-
+Get the ultimate Strava for macOS utility with advanced Strava for macOS Utility | calorie-counter + meal-planning. Featuring calorie-counter and meal-planning, it's the best
 
 
 
